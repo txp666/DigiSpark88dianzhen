@@ -22,3 +22,5 @@
 
 [贴片钽电容 3216A 10V 10UF](https://item.taobao.com/item.htm?spm=a1z09.2.0.0.3ee12e8d0cIyYd&id=536882276924&_u=q20q7cgbe887)
 
+[MAX7219点阵模块](https://item.taobao.com/item.htm?spm=a1z09.2.0.0.27f82e8duHfAoq&id=618274380277&_u=q20q7cgbf835)（风枪拆芯片）
+
