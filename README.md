@@ -12,3 +12,6 @@
 拨动开关 贴片 7脚两档/8脚三档 MSK-12C02/MSK-02（优信电子）  
 
 更多采购信息请看AD文件夹
+
+视频：[【自制】直男礼物…最小8*8点阵_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1jR4y1n7xD?spm_id_from=333.999.0.0)
+
