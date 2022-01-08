@@ -15,3 +15,4 @@
 
 视频：[【自制】直男礼物…最小8*8点阵_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1jR4y1n7xD?spm_id_from=333.999.0.0)
 
+​           [【自制】手机把手教你做一个可编程8*8点阵【教程】_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1hq4y1y7wD/)
