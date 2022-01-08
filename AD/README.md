@@ -4,7 +4,7 @@
 
 [拨动开关 贴片 7脚两档/8脚三档 MSK-12C02/MSK-02](https://item.taobao.com/item.htm?spm=a1z09.2.0.0.27f82e8dUXrg1G&id=557092773462&_u=q20q7cgb67b0)
 
-[小龟/微动/轻触开关/MP3/MP4/手机按键开关](https://item.taobao.com/item.htm?spm=a1z09.2.0.0.27f82e8dUXrg1G&id=522575825388&_u=q20q7cgba0c7)
+[日本ALPS 轻触 贴片侧按键开关 SKSCPCE010 3.5*3.55*1.25 小乌龟-淘宝网 (taobao.com)](https://item.taobao.com/item.htm?spm=a1z09.2.0.0.8ae02e8d8QCrer&id=624742635251&_u=820q7cgb1b66)
 
 [贴片USB-3.1插座 Type-C母座 16P](https://item.taobao.com/item.htm?spm=a1z10.3-c-s.w4002-21223910208.13.7e0c6a4bq6PU4E&id=573090887123)
 
